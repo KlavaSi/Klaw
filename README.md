@@ -4,7 +4,5 @@ ewtrdfedddas
 xzdsadda
 xcxcxzЫВЫВЫФ
 sdfdsffsf
-dsaddfdsfsad
-fsdfsdf
-dgtdghjmmhjkhukiy7
+dsa
 vvcbbfbdfgd
