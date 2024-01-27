@@ -2,7 +2,4 @@
 xcdgfgdfg
 ewtrdfedddas
 xzdsadda
-xcxcxzЫВЫВЫФ
-sdfdsffsf
-dsa
-vvc
+xcxcxzЫВЫВЫ
