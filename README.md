@@ -5,5 +5,3 @@ xzdsadda
 xcxcxzЫВЫВЫ
 mffdsfvsdcv
 cvbxfvxd
-hghghdfg
-grsgfgdgga
