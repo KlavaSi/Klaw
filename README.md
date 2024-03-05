@@ -3,10 +3,7 @@ xcdgfgdfg
 ewtrdfedddas
 xzdsaddasdsadda
 pgddgd
-ghjfghfhfd
-hxgbzfbfzb
-fgbghhgdfgrg
-lghghdfzgzds
+ghjfghf
 fhjhjgfhf
 fghthdfgzddgfdg
 fgghhthdg
